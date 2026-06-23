@@ -17,4 +17,4 @@ _A Fúria Independente, é uma das grandes torcidas do estado do Paraná, perten
 -Meu Paraná, meu Tricolor
 
 
-![Torcida [Fúria Independente](https://media.tenor.com/_oxPrN2HZbsAAAAC/parana-parana-clube.gif)
+![TFI](https://media.tenor.com/_oxPrN2HZbsAAAAC/parana-parana-clube.gif)
