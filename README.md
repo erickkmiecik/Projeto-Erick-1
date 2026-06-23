@@ -7,9 +7,13 @@ _A Fúria Independente, é uma das grandes torcidas do estado do Paraná, perten
 **Essa torcida está sendo ecenssial para a recostrução do clube, lotando estadio, calando a boca das organizadas rivais, assim fazendo o Paraná Clube voltar a elite do campeonato Nacional, tendo uma das maiores padronização nas arquibancadas, e tendo as musicas mais conhecida como:**
 
 -Por Você Torci a Vida Inteira
+
 -Viemos do Inferno
+
 -A Fúria é Foda
+
 -Explode Coração
+
 -Meu Paraná, meu Tricolor
 
 
