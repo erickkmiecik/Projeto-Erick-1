@@ -1,4 +1,4 @@
-# Torcida Furia Independente (H1)
+# Torcida Furia Independente
 
  [Torcida Fúria Independente](https://www.youtube.com/watch?v=lsCuUQePUPI)
 
