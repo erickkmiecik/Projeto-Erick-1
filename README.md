@@ -2,7 +2,7 @@
 
 ## Mar Branco: A Fúria Independente nas Arquibancadas
 
- [Torcida Fúria Independente](https://www.youtube.com/watch?v=lsCuUQePUPI)
+ [Torcida Fúria Independente](https://www.youtube.com/watch?v=72ea28Hj-RU&t=39s)
 
 _A Fúria Independente, é uma das grandes torcidas do estado do Paraná, pertencendo ao Parana clube, sendo criada em 1993, recebendo a sigla (TFI), mais especificamente no dia 29 de setembro. A agremiação nasceu da união de duas antigas torcidas: a Fúria Tricolor e a Independente Paranista_
 
